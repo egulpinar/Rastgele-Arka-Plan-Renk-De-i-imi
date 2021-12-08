@@ -1,1 +1,1 @@
-# Rastgele-Arka-Plan-Renk-De-i-imi
+# Rastgele-Arka-Plan-Renk-Degisimi
